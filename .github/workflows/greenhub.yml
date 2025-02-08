@@ -1,0 +1,38 @@
+name: Commit cheat
+
+on:
+  workflow_dispatch:
+
+  schedule:
+  - cron: "0 */6 * * *"
+
+jobs:
+  auto_commit:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v2
+        with:
+         persist-credentials: false
+         fetch-depth: 0
+
+      - name: Modify README.md
+        run: |
+          cat > README.md
+          curl -H "Accept: text/plain" https://icanhazdadjoke.com > README.md
+          sed -i 's/^/## /gi' README.md
+
+      - name: Commit changes
+        run: |
+          ${{ secrets.cr }}
+          git config --local user.email "niteshraj231@outlook.com"
+          git config --local user.name "Nitesh"
+          git config --global --add safe.directory /github/workspace
+          git add -A
+          git commit -s -am "$(curl -s https://raw.githubusercontent.com/ngerakines/commitment/main/commit_messages.txt | shuf -n 1)"
+
+      - name: GitHub Push
+        uses: ad-m/github-push-action@master
+        with:
+          force: true
+          directory: "."
+          token_github: ${{ secrets.TOKEN_GITHUB }}
