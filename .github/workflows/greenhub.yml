@@ -4,35 +4,36 @@ on:
   workflow_dispatch:
 
   schedule:
-  - cron: "0 */6 * * *"
+  - cron: "0 */5 * * *"
 
 jobs:
   auto_commit:
     runs-on: ubuntu-latest
     steps:
-      - uses: actions/checkout@v2
+      - name: Checkout repository
+        uses: actions/checkout@v3
         with:
-         persist-credentials: false
-         fetch-depth: 0
+          persist-credentials: false
+          fetch-depth: 0
 
       - name: Modify README.md
         run: |
-          cat > README.md
-          curl -H "Accept: text/plain" https://icanhazdadjoke.com > README.md
-          sed -i 's/^/## /gi' README.md
+          curl -H "Accept: text/plain" https://icanhazdadjoke.com | sed 's/^/## /' > README.md
 
       - name: Commit changes
+        env:
+          GIT_AUTHOR_EMAIL: "niteshraj231@outlook.com"
+          GIT_AUTHOR_NAME: "Nitesh"
+          GIT_COMMITTER_EMAIL: "niteshraj231@outlook.com"
+          GIT_COMMITTER_NAME: "Nitesh"
         run: |
-          ${{ secrets.cr }}
-          git config --local user.email "niteshraj231@outlook.com"
-          git config --local user.name "Nitesh"
           git config --global --add safe.directory /github/workspace
-          git add -A
-          git commit -s -am "$(curl -s https://raw.githubusercontent.com/ngerakines/commitment/main/commit_messages.txt | shuf -n 1)"
+          git add README.md
+          git commit -sm "$(curl -s https://raw.githubusercontent.com/ngerakines/commitment/main/commit_messages.txt | shuf -n 1)"
 
-      - name: GitHub Push
-        uses: ad-m/github-push-action@master
+      - name: Push changes
+        uses: ad-m/github-push-action@v0.6.0
         with:
           force: true
           directory: "."
-          token_github: ${{ secrets.TOKEN_GITHUB }}
+          github_token: ${{ secrets.GITHUB_TOKEN }}
