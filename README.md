@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
