@@ -29,7 +29,13 @@ jobs:
         run: |
           git config --global --add safe.directory /github/workspace
           git add README.md
-          git commit -sm "$(curl -s https://raw.githubusercontent.com/ngerakines/commitment/main/commit_messages.txt | shuf -n 1)" \nChange ID: $(uuidgen)
+          COMMIT_MSG=$(curl -s https://raw.githubusercontent.com/ngerakines/commitment/main/commit_messages.txt | shuf -n 1)
+          echo "$COMMIT_MSG" > commit_message.txt
+          echo "" >> commit_message.txt
+          echo "Change-Id: $(uuidgen)" >> commit_message.txt
+          echo "Signed-off-by: Nitesh <niteshraj231@outlook.com>" >> commit_message.txt
+          git commit -F commit_message.txt
+          rm commit_message.txt
 
       - name: Push changes
         uses: ad-m/github-push-action@v0.6.0
