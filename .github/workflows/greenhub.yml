@@ -2,9 +2,8 @@ name: Commit cheat
 
 on:
   workflow_dispatch:
-
   schedule:
-  - cron: "0 */5 * * *"
+    - cron: "0 */5 * * *"
 
 jobs:
   auto_commit:
@@ -12,9 +11,7 @@ jobs:
     steps:
       - name: Checkout repository
         uses: actions/checkout@v3
-        with:
-          persist-credentials: false
-          fetch-depth: 0
+        with: { persist-credentials: false, fetch-depth: 0 }
 
       - name: Modify README.md
         run: |
@@ -41,5 +38,4 @@ jobs:
         uses: ad-m/github-push-action@v0.6.0
         with:
           force: true
-          directory: "."
-          github_token: ${{ secrets.TOKEN_GITHUB }}
+          github_token: ${{ secrets.GITHUB_TOKEN }}
