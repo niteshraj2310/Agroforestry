@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
