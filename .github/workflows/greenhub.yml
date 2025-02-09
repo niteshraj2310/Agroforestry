@@ -29,7 +29,7 @@ jobs:
         run: |
           git config --global --add safe.directory /github/workspace
           git add README.md
-          git commit -sm "$(curl -s https://raw.githubusercontent.com/ngerakines/commitment/main/commit_messages.txt | shuf -n 1) \nChange ID: $(uuidgen)"
+          git commit -sm "$(curl -s https://raw.githubusercontent.com/ngerakines/commitment/main/commit_messages.txt | shuf -n 1)" \nChange ID: $(uuidgen)
 
       - name: Push changes
         uses: ad-m/github-push-action@v0.6.0
