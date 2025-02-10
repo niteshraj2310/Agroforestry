@@ -1,1 +1,1 @@
-## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
