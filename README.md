@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## Man, I really love my furniture... me and my recliner go way back.
