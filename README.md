@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## I made a belt out of watches once... It was a waist of time.
