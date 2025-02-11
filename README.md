@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
