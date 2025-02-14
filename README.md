@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## What kind of music do planets listen to? Nep-tunes.
