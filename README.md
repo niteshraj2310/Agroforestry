@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
