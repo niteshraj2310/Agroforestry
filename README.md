@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## What do you call a droid that takes the long way around? R2 detour.
