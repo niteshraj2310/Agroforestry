@@ -1,1 +1,2 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
