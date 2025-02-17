@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
