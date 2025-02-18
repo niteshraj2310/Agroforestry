@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
