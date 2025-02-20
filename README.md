@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Why don't sharks eat clowns?  Because they taste funny.
