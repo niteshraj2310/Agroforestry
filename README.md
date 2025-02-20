@@ -1,1 +1,1 @@
-## What is bread's favorite number?  Leaven.
+## What did Yoda say when he saw himself in 4K? "HDMI"
