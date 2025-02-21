@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Two dyslexics walk into a bra.
