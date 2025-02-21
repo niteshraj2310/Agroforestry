@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## How does Darth Vader like his toast? On the dark side.
