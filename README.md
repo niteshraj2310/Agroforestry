@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
