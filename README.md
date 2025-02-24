@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
