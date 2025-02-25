@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
