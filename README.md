@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## What does a pirate pay for his corn? A buccaneer!
