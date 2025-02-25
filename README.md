@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
