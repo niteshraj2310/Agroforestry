@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## I broke my finger at work today, on the other hand I'm completely fine.
