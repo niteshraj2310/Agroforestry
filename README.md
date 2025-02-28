@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## Mountains aren't just funny, they are hill areas
