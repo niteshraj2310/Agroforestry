@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## Did you hear about the kidnapping at school? It's ok, he woke up.
