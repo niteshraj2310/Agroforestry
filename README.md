@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
