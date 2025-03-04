@@ -3,7 +3,7 @@ name: Commit cheat
 on:
   workflow_dispatch:
   schedule:
-    - cron: "0 */5 * * *"
+    - cron: "0 */5 * * *" # Every 5 hours
 
 jobs:
   auto_commit:
@@ -11,7 +11,9 @@ jobs:
     steps:
       - name: Checkout repository
         uses: actions/checkout@v3
-        with: { persist-credentials: false, fetch-depth: 0 }
+        with:
+          persist-credentials: false
+          fetch-depth: 0
 
       - name: Modify README.md
         run: |
@@ -21,10 +23,10 @@ jobs:
         env:
           GIT_AUTHOR_EMAIL: "niteshraj231@outlook.com"
           GIT_AUTHOR_NAME: "Nitesh"
-          GIT_COMMITTER_EMAIL: "niteshraj231@outlook.com"
-          GIT_COMMITTER_NAME: "Nitesh"
         run: |
           git config --global --add safe.directory /github/workspace
+          git config --global user.email "$GIT_AUTHOR_EMAIL"
+          git config --global user.name "$GIT_AUTHOR_NAME"
           git add README.md
           COMMIT_MSG=$(curl -s https://raw.githubusercontent.com/ngerakines/commitment/main/commit_messages.txt | shuf -n 1)
           echo "$COMMIT_MSG" > commit_message.txt
