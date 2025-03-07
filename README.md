@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
