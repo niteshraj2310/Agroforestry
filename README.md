@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
