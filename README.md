@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
