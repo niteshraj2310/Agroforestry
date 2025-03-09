@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## How do you find Will Smith in the snow?  Look for fresh prints.
