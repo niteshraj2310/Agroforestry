@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## What has ears but cannot hear? A field of corn.
