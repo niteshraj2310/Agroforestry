@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## I got fired from the transmission factor, turns out I didn't put on enough shifts...
