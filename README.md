@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Animal Fact #25: Most bobcats are not named bob.
