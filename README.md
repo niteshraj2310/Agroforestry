@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
