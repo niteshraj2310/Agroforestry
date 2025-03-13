@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## Why are graveyards so noisy? Because of all the coffin.
