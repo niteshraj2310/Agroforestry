@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## How do you find Will Smith in the snow?  Look for fresh prints.
