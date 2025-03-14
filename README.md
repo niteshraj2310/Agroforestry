@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## What kind of pants do ghosts wear? Boo jeans.
