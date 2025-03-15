@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## What kind of tree fits in your hand? A palm tree!
