@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
