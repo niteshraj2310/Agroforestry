@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
