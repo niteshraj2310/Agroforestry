@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
