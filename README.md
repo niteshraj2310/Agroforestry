@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## Why was the strawberry sad? Its parents were in a jam.
