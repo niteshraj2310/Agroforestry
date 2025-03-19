@@ -1,1 +1,2 @@
-## What do you call a criminal going down the stairs? Condescending
+## What is red and smells like blue paint?
+## Red paint!
