@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
