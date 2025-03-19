@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Why did the coffee file a police report? It got mugged.
