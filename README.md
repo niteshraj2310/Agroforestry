@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
