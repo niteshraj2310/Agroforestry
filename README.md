@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
