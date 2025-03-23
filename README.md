@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
