@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
