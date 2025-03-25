@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
