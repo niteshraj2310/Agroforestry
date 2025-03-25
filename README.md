@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
