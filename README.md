@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
