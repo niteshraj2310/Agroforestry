@@ -1,1 +1,2 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## What's the difference between a seal and a sea lion?
+## An ion! 
