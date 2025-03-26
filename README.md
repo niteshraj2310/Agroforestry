@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## Why is no one friends with Dracula? Because he's a pain in the neck.
