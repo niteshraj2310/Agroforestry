@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What does a clock do when it's hungry? It goes back four seconds!
