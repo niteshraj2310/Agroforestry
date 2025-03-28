@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
