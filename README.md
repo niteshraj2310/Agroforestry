@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Remember, the best angle to approach a problem from is the "try" angle.
