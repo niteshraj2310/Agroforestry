@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Do you know where you can get chicken broth in bulk? The stock market.
