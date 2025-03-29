@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
