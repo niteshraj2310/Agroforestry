@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## What do you call two guys hanging out by your window? Kurt & Rod.
