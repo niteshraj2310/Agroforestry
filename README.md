@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Scientists finally did a study on forks. It's about tine!
