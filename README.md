@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
