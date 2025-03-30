@@ -1,1 +1,1 @@
-## Scientists finally did a study on forks. It's about tine!
+## Why didn’t the skeleton cross the road? Because he had no guts.
