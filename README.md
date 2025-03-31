@@ -1,1 +1,2 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## Why did the cookie cry?
+## Because his mother was a wafer so long
