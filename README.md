@@ -1,1 +1,1 @@
-## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
