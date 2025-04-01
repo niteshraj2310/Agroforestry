@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## It doesn't matter how much you push the envelope. It will still be stationary.
