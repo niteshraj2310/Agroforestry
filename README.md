@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## Did you hear about the kidnapping at school? It's ok, he woke up.
