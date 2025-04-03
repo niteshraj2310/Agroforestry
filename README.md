@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
