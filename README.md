@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
