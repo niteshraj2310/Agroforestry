@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## I boiled a funny bone last night and had a laughing stock
