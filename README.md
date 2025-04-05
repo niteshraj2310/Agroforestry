@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
