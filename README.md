@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
