@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## I decided to sell my Hoover… well it was just collecting dust.
