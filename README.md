@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## A steak pun is a rare medium well done.
