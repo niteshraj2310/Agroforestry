@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
