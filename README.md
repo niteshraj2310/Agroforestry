@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## There's not really any training for garbagemen. They just pick things up as they go.
