@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
