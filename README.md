@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## My first time using an elevator was an uplifting experience. The second time let me down.
