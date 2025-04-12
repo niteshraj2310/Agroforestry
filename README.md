@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## What does an angry pepper do? It gets jalapeño face.
