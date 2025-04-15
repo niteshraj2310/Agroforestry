@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
