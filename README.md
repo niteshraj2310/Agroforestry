@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
