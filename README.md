@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
