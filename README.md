@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
