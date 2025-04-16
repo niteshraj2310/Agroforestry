@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## When do doctors get angry? When they run out of patients.
