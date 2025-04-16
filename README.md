@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## An apple a day keeps the bullies away. If you throw it hard enough.
