@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## I ate a clock yesterday. It was so time consuming.
