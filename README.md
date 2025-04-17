@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## I just broke my guitar. It's okay, I won't fret
