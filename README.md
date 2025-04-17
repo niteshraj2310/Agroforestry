@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
