@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## When does a joke become a dad joke? When it becomes apparent.
