@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
