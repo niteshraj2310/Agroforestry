@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
