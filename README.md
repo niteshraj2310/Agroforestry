@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Velcro… What a rip-off.
