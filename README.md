@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## Why do birds fly south for the winter? Because it's too far to walk.
