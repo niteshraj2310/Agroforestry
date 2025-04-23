@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Why do fish live in salt water? Because pepper makes them sneeze!
