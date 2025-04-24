@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
