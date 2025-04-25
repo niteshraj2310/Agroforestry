@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
