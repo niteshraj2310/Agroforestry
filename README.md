@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
