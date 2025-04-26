@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
