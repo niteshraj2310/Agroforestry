@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## This furniture store keeps emailing me, all I wanted was one night stand!
