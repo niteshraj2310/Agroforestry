@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
