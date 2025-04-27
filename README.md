@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
