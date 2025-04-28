@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
