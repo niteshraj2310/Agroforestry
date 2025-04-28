@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
