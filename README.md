@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## How come the stadium got hot after the game? Because all of the fans left.
