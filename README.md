@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## I’m on a whiskey diet. I’ve lost three days already.
