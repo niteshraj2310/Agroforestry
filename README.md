@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## What’s brown and sounds like a bell? Dung!
