@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## The rotation of earth really makes my day.
