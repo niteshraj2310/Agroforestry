@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
