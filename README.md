@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
