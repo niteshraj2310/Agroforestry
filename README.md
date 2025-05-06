@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## What did one plate say to the other plate? Dinner is on me!
