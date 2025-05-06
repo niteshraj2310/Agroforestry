@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## What do you call two guys hanging out by your window? Kurt & Rod.
