@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## Did you know that ghosts call their true love their ghoul-friend?
