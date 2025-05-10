@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
