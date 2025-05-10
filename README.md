@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## What did the grape do when he got stepped on? He let out a little wine.
