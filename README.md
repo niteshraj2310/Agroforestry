@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## Did you hear about the Mexican train killer? He had loco motives
