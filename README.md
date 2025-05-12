@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
