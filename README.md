@@ -1,1 +1,3 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
