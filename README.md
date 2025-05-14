@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
