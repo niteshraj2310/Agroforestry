@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
