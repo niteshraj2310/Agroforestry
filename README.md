@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
