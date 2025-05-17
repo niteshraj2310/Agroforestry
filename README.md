@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
