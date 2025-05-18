@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## There's not really any training for garbagemen. They just pick things up as they go.
