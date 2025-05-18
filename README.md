@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
