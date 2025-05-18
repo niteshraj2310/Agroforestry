@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Where does Napoleon keep his armies? In his sleevies.
