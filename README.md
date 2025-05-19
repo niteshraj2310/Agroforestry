@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
