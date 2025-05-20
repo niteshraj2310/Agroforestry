@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## I’m on a whiskey diet. I’ve lost three days already.
