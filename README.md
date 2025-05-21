@@ -1,1 +1,1 @@
-## I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
