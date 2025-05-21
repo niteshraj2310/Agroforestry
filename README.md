@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
