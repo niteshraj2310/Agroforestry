@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Two peanuts were walking down the street. One was a salted.
