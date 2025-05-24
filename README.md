@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
