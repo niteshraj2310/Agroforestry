@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## When is a door not a door? When it's ajar.
