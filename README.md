@@ -1,1 +1,2 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
