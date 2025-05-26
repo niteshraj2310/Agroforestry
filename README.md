@@ -1,1 +1,2 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
