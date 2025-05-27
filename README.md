@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
