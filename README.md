@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
