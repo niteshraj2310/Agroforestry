@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
