@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## I considered building the patio by myself. But I didn't have the stones.
