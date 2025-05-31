@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
