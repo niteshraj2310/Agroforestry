@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## I made a belt out of watches once... It was a waist of time.
