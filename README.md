@@ -1,1 +1,2 @@
-## I made a belt out of watches once... It was a waist of time.
+## What is red and smells like blue paint?
+## Red paint!
