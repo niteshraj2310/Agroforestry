@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
