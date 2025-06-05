@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## what do you call a dog that can do magic tricks? a labracadabrador
