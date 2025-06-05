@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## What’s E.T. short for? He’s only got little legs.
