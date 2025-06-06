@@ -1,1 +1,1 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
