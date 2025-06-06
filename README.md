@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
