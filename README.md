@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## People are making apocalypse jokes like there’s no tomorrow.
