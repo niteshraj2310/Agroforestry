@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## What does a pirate pay for his corn? A buccaneer!
