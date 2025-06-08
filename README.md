@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why are fish easy to weigh? Because they have their own scales.
