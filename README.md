@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Two peanuts were walking down the street. One was a salted.
