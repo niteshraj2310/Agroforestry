@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
