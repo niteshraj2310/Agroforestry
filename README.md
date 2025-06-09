@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
