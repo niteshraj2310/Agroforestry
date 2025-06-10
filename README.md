@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Have you heard about corduroy pillows?  They're making headlines!
