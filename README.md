@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## I just got fired from a florist, apparently I took too many leaves.
