@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## Why are mummys scared of vacation? They're afraid to unwind.
