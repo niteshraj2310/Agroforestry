@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
