@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## This morning I was wondering where the sun was, but then it dawned on me.
