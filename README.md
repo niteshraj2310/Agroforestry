@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
