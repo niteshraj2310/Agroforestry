@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
