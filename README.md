@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
