@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
