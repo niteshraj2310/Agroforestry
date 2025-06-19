@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## Why do fish live in salt water? Because pepper makes them sneeze!
