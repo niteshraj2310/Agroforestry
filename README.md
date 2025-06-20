@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
