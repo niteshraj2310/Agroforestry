@@ -1,1 +1,3 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
