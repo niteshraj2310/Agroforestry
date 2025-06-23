@@ -1,3 +1,1 @@
-## How many seconds are in a year?
-## 12.
-## January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
