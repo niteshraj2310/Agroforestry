@@ -1,1 +1,1 @@
-## What did the pirate say on his 80th birthday? Aye Matey!
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
