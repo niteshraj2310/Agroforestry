@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## What do you call cheese by itself? Provolone.
