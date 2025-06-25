@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
