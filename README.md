@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
