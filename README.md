@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
