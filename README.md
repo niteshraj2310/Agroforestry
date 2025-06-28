@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
