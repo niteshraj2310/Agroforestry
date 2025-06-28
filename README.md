@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Some people eat light bulbs. They say it's a nice light snack.
