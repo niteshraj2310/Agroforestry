@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
