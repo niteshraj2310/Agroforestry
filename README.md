@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
