@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## How come a man driving a train got struck by lightning? He was a good conductor.
