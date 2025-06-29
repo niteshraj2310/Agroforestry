@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
