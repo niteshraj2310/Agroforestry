@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
