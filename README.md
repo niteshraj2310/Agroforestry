@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## We all know where the Big Apple is but does anyone know where the Minneapolis?
