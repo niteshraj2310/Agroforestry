@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
