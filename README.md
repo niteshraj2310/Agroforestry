@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## You know that cemetery up the road? People are dying to get in there.
