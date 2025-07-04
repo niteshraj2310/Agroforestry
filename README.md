@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## What creature is smarter than a talking parrot? A spelling bee.
