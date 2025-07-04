@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## What did the mountain climber name his son? Cliff.
