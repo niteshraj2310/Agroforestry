@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## If at first you don't succeed, sky diving is not for you!
