@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
