@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Why do ducks make great detectives? They always quack the case.
