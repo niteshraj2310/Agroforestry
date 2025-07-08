@@ -1,1 +1,2 @@
-## Two dyslexics walk into a bra.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
