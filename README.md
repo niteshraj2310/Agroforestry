@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
