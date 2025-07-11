@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## How does Darth Vader like his toast? On the dark side.
