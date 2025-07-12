@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
