@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Some people eat light bulbs. They say it's a nice light snack.
