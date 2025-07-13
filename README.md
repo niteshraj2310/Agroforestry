@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Don't trust atoms. They make up everything.
