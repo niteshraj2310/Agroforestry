@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
