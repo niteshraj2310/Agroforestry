@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
