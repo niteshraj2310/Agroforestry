@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
