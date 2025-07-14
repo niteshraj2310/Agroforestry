@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## A termite walks into a bar and asks “Is the bar tender here?”
