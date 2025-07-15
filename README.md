@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
