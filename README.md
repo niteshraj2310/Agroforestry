@@ -1,1 +1,2 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
+## I have no words to describe how angry I am.
