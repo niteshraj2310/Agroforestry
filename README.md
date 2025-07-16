@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
