@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
