@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## I considered building the patio by myself. But I didn't have the stones.
