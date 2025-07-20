@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## I just got fired from a florist, apparently I took too many leaves.
