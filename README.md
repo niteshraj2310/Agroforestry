@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## What did the piece of bread say to the knife? Butter me up.
