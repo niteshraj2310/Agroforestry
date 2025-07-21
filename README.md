@@ -1,1 +1,1 @@
-## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
