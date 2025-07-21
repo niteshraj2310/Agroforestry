@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
