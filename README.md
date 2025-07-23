@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
