@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
