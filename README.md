@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
