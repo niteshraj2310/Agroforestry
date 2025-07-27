@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## I have kleptomania, but when it gets bad, I take something for it.
