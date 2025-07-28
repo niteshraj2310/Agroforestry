@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
