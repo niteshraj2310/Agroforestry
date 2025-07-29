@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
