@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## Archaeology really is a career in ruins.
