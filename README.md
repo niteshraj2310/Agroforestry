@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
