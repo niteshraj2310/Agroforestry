@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
