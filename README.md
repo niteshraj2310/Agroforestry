@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## I wouldn't buy anything with velcro. It's a total rip-off.
