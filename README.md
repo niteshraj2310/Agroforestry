@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## How come the stadium got hot after the game? Because all of the fans left.
