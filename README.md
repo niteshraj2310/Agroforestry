@@ -1,1 +1,1 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## Where do sheep go to get their hair cut? The baa-baa shop.
