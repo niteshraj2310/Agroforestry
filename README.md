@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
