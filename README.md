@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
