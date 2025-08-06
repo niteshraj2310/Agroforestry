@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Mountains aren't just funny, they are hill areas
