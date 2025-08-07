@@ -1,1 +1,2 @@
-## A book just fell on my head. I only have my shelf to blame.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
