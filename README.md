@@ -1,1 +1,1 @@
-## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
+## I considered building the patio by myself. But I didn't have the stones.
