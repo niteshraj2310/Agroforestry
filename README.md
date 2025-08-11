@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
