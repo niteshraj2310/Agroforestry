@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
