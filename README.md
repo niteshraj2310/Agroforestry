@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
