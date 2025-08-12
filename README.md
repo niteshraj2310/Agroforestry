@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Don't trust atoms. They make up everything.
