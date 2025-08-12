@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## What do you call a duck that gets all A's? A wise quacker.
