@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## What's a ninja's favorite type of shoes? Sneakers!
