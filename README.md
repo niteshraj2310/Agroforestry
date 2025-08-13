@@ -1,1 +1,1 @@
-## What do you call a snake who builds houses? A boa constructor!
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
