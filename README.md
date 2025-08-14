@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## I don't trust sushi, there's something fishy about it.
