@@ -1,1 +1,1 @@
-## I was so proud when I finished the puzzle in six months, when on the side it said three to four years.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
