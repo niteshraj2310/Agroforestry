@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## If two vegans are having an argument, is it still considered beef?
