@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## I couldn't get a reservation at the library. They were completely booked.
