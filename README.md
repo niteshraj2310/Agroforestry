@@ -1,1 +1,2 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Where do cats write notes?
+## Scratch Paper!
