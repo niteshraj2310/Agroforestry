@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Coffee has a tough time at my house, every morning it gets mugged.
