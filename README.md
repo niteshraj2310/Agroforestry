@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
