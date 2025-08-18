@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
