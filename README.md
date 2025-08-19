@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## What kind of music do mummy's like? Rap
