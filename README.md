@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Why did the tomato blush? Because it saw the salad dressing.
