@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## How does a French skeleton say hello? Bone-jour.
