@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
