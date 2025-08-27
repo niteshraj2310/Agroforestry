@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## What animal is always at a game of cricket? A bat.
