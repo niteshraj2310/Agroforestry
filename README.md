@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## When do doctors get angry? When they run out of patients.
