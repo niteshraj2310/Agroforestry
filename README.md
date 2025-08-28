@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
