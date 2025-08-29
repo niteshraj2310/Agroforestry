@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## You know that cemetery up the road? People are dying to get in there.
