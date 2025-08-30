@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
