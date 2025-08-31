@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
