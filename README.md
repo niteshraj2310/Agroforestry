@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
