@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What do you call corn that joins the army? Kernel.
