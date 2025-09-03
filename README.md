@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## What did the sea say to the sand? "We have to stop meeting like this."
