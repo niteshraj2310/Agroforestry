@@ -1,1 +1,1 @@
-## What is the leading cause of dry skin? Towels
+## Why don't sharks eat clowns?  Because they taste funny.
