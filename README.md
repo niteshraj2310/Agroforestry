@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## How do locomotives know where they're going? Lots of training
