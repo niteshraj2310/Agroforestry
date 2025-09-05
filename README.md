@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## I boiled a funny bone last night and had a laughing stock
