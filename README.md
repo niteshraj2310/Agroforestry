@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## What is a witch's favorite subject in school? Spelling!
