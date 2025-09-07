@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
