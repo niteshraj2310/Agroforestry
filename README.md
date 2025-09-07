@@ -1,1 +1,2 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
