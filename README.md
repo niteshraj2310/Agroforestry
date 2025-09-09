@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Why do choirs keep buckets handy? So they can carry their tune
