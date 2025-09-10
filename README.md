@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
