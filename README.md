@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## What does a clock do when it's hungry? It goes back four seconds!
