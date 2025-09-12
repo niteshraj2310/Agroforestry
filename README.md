@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Where do you learn to make banana splits? At sundae school.
