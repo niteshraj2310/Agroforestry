@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why was the picture sent to prison? It was framed.
