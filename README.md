@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Why does Han Solo like gum? It's chewy!
