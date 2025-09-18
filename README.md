@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
