@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
