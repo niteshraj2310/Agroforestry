@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Did you know that ghosts call their true love their ghoul-friend?
