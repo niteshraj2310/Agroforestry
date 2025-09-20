@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## What did Yoda say when he saw himself in 4K? "HDMI"
