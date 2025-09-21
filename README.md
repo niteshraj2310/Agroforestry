@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
