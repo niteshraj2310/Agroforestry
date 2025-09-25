@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
