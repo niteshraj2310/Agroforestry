@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## What does a pirate pay for his corn? A buccaneer!
