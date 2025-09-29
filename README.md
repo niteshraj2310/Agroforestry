@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
