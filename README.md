@@ -1,1 +1,2 @@
-## Why did the miner get fired from his job? He took it for granite...
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
