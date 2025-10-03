@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## What do you get hanging from Apple trees? Sore arms.
