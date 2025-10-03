@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
