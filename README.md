@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
