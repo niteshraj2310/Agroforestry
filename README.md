@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
