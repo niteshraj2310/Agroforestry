@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
