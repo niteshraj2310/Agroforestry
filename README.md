@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## What do you get when you cross a rabbit with a water hose? Hare spray.
