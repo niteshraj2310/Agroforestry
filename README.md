@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Why do birds fly south for the winter? Because it's too far to walk.
