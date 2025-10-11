@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## How do you fix a broken pizza? With tomato paste.
