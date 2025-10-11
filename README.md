@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## Why do crabs never give to charity? Because they’re shellfish.
