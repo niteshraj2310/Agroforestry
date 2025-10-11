@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## We all know where the Big Apple is but does anyone know where the Minneapolis?
