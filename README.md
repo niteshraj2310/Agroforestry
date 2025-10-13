@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## What's black and white and read all over? The newspaper.
