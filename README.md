@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## What's brown and sticky? A stick.
