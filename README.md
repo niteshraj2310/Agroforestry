@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Archaeology really is a career in ruins.
