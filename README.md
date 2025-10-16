@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## Never take advice from electrons. They are always negative.
