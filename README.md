@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
