@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## Why don't sharks eat clowns?  Because they taste funny.
