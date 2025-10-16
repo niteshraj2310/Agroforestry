@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What do you call a fish wearing a bowtie? Sofishticated.
