@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
