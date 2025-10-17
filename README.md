@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## Why do bees have sticky hair? Because they use honey combs!
