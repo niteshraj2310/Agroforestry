@@ -1,1 +1,2 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## What is red and smells like blue paint?
+## Red paint!
