@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
