@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
