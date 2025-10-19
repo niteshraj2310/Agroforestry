@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Where do hamburgers go to dance? The meat-ball.
