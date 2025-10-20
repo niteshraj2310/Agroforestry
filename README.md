@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
