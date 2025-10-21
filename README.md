@@ -1,1 +1,2 @@
-## Waking up this morning was an eye-opening experience.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
