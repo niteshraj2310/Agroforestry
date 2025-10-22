@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
