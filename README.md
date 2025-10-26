@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## Where did you learn to make ice cream? Sunday school.
