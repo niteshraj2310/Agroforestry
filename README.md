@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
