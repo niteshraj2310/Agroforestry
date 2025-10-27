@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## I have kleptomania, but when it gets bad, I take something for it.
