@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
