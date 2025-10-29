@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
