@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
