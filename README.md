@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
