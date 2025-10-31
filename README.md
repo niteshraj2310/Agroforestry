@@ -1,1 +1,2 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## What is red and smells like blue paint?
+## Red paint!
