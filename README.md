@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
