@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## I decided to sell my Hoover… well it was just collecting dust.
