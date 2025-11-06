@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## How many South Americans does it take to change a lightbulb? A Brazilian
