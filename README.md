@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## The shovel was a ground-breaking invention.
