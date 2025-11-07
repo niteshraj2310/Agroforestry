@@ -1,1 +1,1 @@
-## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
+## Remember, the best angle to approach a problem from is the "try" angle.
