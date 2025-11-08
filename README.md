@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
