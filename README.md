@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
