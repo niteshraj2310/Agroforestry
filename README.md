@@ -1,1 +1,1 @@
-## To the person who stole my anti-depressant pills: I hope you're happy now.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
