@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
