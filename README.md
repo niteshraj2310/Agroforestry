@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
