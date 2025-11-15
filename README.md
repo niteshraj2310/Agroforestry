@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## A termite walks into a bar and asks “Is the bar tender here?”
