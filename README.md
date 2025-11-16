@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## How can you tell a vampire has a cold? They start coffin.
