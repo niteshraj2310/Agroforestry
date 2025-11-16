@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## I’ll tell you something about German sausages, they’re the wurst
