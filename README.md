@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## What do you call a fish with no eyes? A fsh.
