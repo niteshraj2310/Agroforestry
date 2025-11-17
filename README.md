@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
