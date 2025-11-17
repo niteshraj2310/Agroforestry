@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
