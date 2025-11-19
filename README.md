@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
