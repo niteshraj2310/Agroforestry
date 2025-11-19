@@ -1,1 +1,1 @@
-## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
