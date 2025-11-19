@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
