@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
