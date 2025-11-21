@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## How do robots eat guacamole? With computer chips.
