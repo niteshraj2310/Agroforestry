@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
