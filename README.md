@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
