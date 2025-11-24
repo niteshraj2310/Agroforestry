@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
