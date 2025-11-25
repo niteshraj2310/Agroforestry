@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## What's the best thing about elevator jokes? They work on so many levels.
