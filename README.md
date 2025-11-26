@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
