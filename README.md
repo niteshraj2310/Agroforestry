@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
