@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
