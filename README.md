@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Want to hear a joke about construction? Nah, I'm still working on it.
