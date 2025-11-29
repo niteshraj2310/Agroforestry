@@ -1,2 +1,3 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
