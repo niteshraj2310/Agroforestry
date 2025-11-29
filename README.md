@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
