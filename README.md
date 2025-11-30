@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
