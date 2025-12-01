@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
