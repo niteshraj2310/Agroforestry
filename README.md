@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## How can you tell a vampire has a cold? They start coffin.
