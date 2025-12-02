@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
