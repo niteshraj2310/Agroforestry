@@ -1,1 +1,1 @@
-## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
