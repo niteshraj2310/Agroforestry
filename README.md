@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
