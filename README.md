@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## “My Dog has no nose.” “How does he smell?” “Awful”
