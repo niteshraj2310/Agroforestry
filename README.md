@@ -1,1 +1,1 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
