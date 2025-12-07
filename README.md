@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
