@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
