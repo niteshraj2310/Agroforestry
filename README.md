@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
