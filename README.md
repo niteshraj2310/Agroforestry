@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
