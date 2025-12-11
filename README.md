@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## Where did you learn to make ice cream? Sunday school.
