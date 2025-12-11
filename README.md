@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
