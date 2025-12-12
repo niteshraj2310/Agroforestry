@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## I used to work in a shoe recycling shop. It was sole destroying.
