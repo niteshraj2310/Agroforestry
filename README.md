@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
