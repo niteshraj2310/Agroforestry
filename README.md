@@ -1,1 +1,2 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## What's large, grey, and doesn't matter?
+## An irrelephant.
