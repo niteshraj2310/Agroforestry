@@ -1,1 +1,1 @@
-## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
+## What musical instrument is found in the bathroom? A tuba toothpaste.
