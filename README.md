@@ -1,3 +1,3 @@
-## Never Trust Someone With Graph Paper...
+## What was the pumpkin’s favorite sport?
 ## 
-## They're always plotting something.
+## Squash.
