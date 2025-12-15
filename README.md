@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## My first time using an elevator was an uplifting experience. The second time let me down.
