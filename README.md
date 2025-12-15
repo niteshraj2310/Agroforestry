@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
