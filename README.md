@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
