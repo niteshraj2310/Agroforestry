@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
