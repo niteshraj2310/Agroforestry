@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
