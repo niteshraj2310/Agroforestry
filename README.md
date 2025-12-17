@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
