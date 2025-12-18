@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
