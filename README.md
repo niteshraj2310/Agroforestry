@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
