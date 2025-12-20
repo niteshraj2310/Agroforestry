@@ -1,1 +1,2 @@
-## Why was the broom late for the meeting? He overswept.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
