@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## I wouldn't buy anything with velcro. It's a total rip-off.
