@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
