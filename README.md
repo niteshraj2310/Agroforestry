@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## What did the ocean say to the shore? Nothing, it just waved.
