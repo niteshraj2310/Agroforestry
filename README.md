@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
