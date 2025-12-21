@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
