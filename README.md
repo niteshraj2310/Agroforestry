@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## How do hens stay fit? They always egg-cercise!
