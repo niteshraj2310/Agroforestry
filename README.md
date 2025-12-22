@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
