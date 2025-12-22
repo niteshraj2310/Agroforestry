@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
