@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## Why don't eggs tell jokes? They'd crack each other up
