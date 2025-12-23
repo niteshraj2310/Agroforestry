@@ -1,1 +1,3 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
