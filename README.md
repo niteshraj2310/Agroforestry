@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## Why is it so windy inside an arena? All those fans.
