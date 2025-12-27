@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## New atoms frequently lose electrons when they fail to keep an ion them.
