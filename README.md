@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## What do you call a bear with no teeth? A gummy bear!
