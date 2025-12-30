@@ -1,1 +1,3 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
