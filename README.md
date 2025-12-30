@@ -1,3 +1,1 @@
-## How many seconds are in a year?
-## 12.
-## January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
