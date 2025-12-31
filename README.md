@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Atheism is a non-prophet organisation.
