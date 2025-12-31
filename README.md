@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## How do you make a hankie dance? Put a little boogie in it.
