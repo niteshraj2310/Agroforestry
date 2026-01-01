@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## What time did the man go to the dentist? Tooth hurt-y.
