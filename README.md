@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## What do you call a group of killer whales playing instruments? An Orca-stra.
