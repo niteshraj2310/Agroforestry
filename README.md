@@ -1,1 +1,1 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
