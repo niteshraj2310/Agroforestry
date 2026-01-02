@@ -1,1 +1,1 @@
-## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+## Why do bees have sticky hair? Because they use honey combs!
