@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## What kind of award did the dentist receive? A little plaque.
