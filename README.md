@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
