@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## Thanks for explaining the word "many" to me. It means a lot.
