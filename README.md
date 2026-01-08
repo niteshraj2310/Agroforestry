@@ -1,1 +1,3 @@
-## What do you call a sheep with no legs? A cloud.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
