@@ -1,1 +1,1 @@
-## They're making a movie about clocks. It's about time
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
