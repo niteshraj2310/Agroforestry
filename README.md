@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
