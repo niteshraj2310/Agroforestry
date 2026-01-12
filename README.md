@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## what do you call a dog that can do magic tricks? a labracadabrador
