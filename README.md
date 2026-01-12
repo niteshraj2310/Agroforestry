@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
