@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Shout out to my grandma, that's the only way she can hear.
