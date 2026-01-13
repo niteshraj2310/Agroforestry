@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## You can't run through a camp site. You can only ran, because it's past tents.
