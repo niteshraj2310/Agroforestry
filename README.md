@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## How do robots eat guacamole? With computer chips.
