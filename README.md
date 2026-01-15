@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Where do owls go to buy their baby clothes? The owlet malls.
