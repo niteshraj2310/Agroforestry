@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## Two guys walked into a bar, the third one ducked.
