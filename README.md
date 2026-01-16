@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## How do you make Lady Gaga cry? Poker face. 
