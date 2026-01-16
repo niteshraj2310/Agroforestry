@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
