@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## Why do bears have hairy coats? Fur protection.
