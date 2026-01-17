@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## I decided to sell my Hoover… well it was just collecting dust.
