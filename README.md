@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
