@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
