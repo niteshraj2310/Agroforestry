@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## Did you hear about the bread factory burning down? They say the business is toast.
