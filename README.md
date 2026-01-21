@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
