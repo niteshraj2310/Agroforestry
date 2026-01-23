@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
