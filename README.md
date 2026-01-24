@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
