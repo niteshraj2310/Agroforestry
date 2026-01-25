@@ -1,1 +1,2 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
