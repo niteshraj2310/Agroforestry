@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
