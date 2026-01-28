@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
