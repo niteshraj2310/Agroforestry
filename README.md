@@ -1,1 +1,1 @@
-## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
