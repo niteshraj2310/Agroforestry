@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
