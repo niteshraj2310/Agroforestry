@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## What is a vampire's favorite fruit? A blood orange.
