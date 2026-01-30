@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
