@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
