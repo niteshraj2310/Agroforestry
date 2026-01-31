@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
