@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## What did the calculator say to the student? You can count on me.
