@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## Where do bees go to the bathroom?  The BP station.
