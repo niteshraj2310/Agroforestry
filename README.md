@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## "I'll call you later." Don't call me later, call me Dad.
