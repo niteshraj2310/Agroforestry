@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
