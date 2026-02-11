@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
