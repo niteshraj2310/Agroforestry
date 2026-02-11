@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## We all know where the Big Apple is but does anyone know where the Minneapolis?
