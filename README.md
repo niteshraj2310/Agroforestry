@@ -1,1 +1,1 @@
-## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
