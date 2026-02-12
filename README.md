@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
