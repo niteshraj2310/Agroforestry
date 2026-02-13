@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
