@@ -1,1 +1,1 @@
-## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
+## I’m reading a book on the history of glue – can’t put it down.
