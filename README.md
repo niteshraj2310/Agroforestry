@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
