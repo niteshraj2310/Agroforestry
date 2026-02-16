@@ -1,1 +1,2 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
