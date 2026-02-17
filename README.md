@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-## Now you can talk about Botox and nobody raises an eyebrow.
+## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
