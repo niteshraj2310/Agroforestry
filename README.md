@@ -1,1 +1,1 @@
-## I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
