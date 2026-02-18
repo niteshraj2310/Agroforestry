@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## What is this movie about? It is about 2 hours long.
