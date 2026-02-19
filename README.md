@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## Why did the kid cross the playground? To get to the other slide.
