@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
