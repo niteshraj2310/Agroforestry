@@ -1,1 +1,1 @@
-## What do birds give out on Halloween? Tweets.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
