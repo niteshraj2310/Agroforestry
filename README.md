@@ -1,1 +1,1 @@
-## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
