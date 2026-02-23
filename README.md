@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
