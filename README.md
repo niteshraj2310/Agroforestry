@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
