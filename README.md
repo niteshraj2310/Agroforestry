@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## How does a French skeleton say hello? Bone-jour.
