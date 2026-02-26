@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## A termite walks into a bar and asks “Is the bar tender here?”
