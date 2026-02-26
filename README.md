@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Is the pool safe for diving? It deep ends.
