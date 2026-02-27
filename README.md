@@ -1,1 +1,2 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
