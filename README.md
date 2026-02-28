@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
