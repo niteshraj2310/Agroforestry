@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## What is a witch's favorite subject in school? Spelling!
