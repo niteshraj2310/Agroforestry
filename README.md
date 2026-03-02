@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## How do you make a hankie dance? Put a little boogie in it.
