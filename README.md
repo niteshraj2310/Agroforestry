@@ -1,1 +1,1 @@
-## Did you hear about the bread factory burning down? They say the business is toast.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
