@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
