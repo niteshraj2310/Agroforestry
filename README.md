@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Why can't eggs have love? They will break up too soon.
