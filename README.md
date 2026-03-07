@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
