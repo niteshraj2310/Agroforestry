@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
