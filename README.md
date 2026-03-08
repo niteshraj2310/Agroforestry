@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## How come the stadium got hot after the game? Because all of the fans left.
