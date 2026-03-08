@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## Ever wondered why bees hum? It's because they don't know the words.
