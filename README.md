@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
