@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
