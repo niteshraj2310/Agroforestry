@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
