@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
