@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
