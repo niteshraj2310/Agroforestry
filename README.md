@@ -1,1 +1,2 @@
-## I wanted to be a tailor but I didn't suit the job
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
