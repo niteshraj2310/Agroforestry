@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
