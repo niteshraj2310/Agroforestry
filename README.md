@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## How come the stadium got hot after the game? Because all of the fans left.
