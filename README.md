@@ -1,1 +1,1 @@
-## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
