@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
