@@ -1,1 +1,2 @@
-## Scientists finally did a study on forks. It's about tine!
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
