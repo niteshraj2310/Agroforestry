@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
