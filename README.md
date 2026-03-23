@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
