@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## What has ears but cannot hear? A field of corn.
