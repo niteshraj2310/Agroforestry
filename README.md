@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
