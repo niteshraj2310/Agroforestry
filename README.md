@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
