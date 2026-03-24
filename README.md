@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Why do ducks make great detectives? They always quack the case.
