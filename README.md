@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## Why do bees hum? Because they don't know the words.
