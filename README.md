@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## There's not really any training for garbagemen. They just pick things up as they go.
