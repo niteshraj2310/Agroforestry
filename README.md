@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
