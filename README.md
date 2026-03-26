@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What's red and bad for your teeth? A Brick.
