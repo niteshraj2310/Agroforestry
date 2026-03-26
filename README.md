@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Two silk worms had a race. They ended up in a tie.
