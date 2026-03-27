@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
