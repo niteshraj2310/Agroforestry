@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Why do birds fly south for the winter? Because it's too far to walk.
