@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## What do you call a boy who stopped digging holes? Douglas.
