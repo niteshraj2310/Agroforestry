@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## How does the moon cut his hair? Eclipse it.
