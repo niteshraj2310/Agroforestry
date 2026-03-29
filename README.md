@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Why are skeletons so calm? Because nothing gets under their skin.
