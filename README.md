@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
