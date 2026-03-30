@@ -1,1 +1,1 @@
-## I once lost a banana at court but then I appealed. 
+## Why did the octopus beat the shark in a fight? Because it was well armed.
