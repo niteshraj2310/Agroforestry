@@ -1,1 +1,1 @@
-## What cheese can never be yours? Nacho cheese.
+## When do doctors get angry? When they run out of patients.
