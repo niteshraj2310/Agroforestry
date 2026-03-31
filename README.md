@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## How do you teach a kid to climb stairs? There is a step by step guide.
