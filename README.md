@@ -1,1 +1,1 @@
-## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
