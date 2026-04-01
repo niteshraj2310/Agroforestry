@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
