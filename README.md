@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## Whoever invented the knock-knock joke should get a no bell prize.
