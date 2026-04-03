@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
