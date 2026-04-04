@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## What creature is smarter than a talking parrot? A spelling bee.
