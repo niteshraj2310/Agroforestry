@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
