@@ -1,3 +1,1 @@
-## Doctor: Do you want to hear the good news or the bad news?
-## Patient: Good news please.
-## Doctor: we're naming a disease after you.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
