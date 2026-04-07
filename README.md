@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
