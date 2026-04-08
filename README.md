@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## How many bones are in the human hand? A handful of them.
