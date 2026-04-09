@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
