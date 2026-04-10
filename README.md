@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Where do hamburgers go to dance? The meat-ball.
