@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## What did one wall say to the other wall? I'll meet you at the corner!
