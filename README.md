@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## What is the hardest part about sky diving? The ground.
