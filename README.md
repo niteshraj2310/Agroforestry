@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## What has three letters and starts with gas? A Car.
