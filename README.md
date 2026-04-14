@@ -1,2 +1,2 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## What is the best way to carve?
+## Whittle by whittle.
