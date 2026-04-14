@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
