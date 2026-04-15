@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## What happens to a frog's car when it breaks down? It gets toad.
