@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
