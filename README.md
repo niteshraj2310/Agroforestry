@@ -1,1 +1,2 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## What do you do when you see a space man?
+## Park your car, man.
