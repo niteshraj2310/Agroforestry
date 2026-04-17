@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Whats a penguins favorite relative? Aunt Arctica.
