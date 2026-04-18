@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## How does the moon cut his hair? Eclipse it.
