@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Where do sheep go to get their hair cut? The baa-baa shop.
