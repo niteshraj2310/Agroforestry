@@ -1,1 +1,1 @@
-## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
+## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
