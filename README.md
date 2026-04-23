@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## Why did the kid throw the clock out the window? He wanted to see time fly!
