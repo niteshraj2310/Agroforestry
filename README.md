@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Why do fish live in salt water? Because pepper makes them sneeze!
