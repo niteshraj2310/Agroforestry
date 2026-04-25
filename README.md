@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
