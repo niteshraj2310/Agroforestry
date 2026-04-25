@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## Why did the belt go to prison? He held up a pair of pants!
