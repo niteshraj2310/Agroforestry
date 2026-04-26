@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
