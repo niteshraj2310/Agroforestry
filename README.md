@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
