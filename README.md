@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
