@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
