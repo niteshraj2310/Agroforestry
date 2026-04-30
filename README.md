@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
