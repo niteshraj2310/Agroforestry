@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## What do you call your friend who stands in a hole? Phil.
