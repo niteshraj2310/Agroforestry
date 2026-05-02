@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
