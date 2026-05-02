@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
