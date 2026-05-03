@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
