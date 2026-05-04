@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
