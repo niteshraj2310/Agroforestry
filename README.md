@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
