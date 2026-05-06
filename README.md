@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Why do fish live in salt water? Because pepper makes them sneeze!
