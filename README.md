@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## What did one nut say as he chased another nut?  I'm a cashew!
