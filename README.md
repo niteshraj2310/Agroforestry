@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
