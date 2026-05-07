@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
