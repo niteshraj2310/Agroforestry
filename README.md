@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
