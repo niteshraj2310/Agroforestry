@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
