@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
