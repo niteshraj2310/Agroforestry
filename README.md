@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
