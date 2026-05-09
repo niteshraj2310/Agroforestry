@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## Leather is great for sneaking around because it's made of hide.
