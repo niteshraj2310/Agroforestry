@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
