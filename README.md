@@ -1,1 +1,2 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
