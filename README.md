@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Coffee has a tough time at my house, every morning it gets mugged.
