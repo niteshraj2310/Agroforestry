@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
