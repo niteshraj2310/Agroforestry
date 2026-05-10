@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
