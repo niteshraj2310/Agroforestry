@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
