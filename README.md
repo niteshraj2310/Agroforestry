@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
