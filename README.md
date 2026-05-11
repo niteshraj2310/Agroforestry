@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## How come a man driving a train got struck by lightning? He was a good conductor.
