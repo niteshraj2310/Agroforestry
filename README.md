@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
