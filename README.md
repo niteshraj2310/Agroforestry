@@ -1,1 +1,1 @@
-## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
