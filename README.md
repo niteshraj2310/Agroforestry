@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
