@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
