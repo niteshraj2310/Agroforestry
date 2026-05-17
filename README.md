@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## I wanted to be a tailor but I didn't suit the job
