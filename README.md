@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
