@@ -1,1 +1,1 @@
-## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
