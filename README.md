@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
