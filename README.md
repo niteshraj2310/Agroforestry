@@ -1,1 +1,2 @@
-## Did you hear about the bread factory burning down? They say the business is toast.
+## What is red and smells like blue paint?
+## Red paint!
