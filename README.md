@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
