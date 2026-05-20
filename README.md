@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
