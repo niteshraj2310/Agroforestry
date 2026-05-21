@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
