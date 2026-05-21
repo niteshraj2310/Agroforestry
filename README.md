@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
