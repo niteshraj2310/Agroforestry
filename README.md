@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## What do you call a bear with no teeth? A gummy bear!
