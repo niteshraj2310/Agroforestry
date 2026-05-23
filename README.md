@@ -1,1 +1,1 @@
-## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
+## What did the piece of bread say to the knife? Butter me up.
