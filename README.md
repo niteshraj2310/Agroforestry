@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Atheism is a non-prophet organisation.
