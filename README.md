@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
