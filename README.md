@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## What do you call a sheep with no legs? A cloud.
