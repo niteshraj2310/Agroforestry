@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## Why are graveyards so noisy? Because of all the coffin.
