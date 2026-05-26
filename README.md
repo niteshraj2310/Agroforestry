@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## What do you call a dad that has fallen through the ice? A Popsicle.
