@@ -1,1 +1,2 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
