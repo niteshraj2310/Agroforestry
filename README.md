@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
