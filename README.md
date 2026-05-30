@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
