@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
