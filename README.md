@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
