@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
