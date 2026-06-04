@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
