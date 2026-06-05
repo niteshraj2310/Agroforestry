@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## What do you call a duck that gets all A's? A wise quacker.
