@@ -1,1 +1,1 @@
-## What do birds give out on Halloween? Tweets.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
