@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## People are shocked to discover I have a police record but I love their greatest hits!
