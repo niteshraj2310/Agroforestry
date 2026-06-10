@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
