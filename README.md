@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
