@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## What do you do on a remote island? Try and find the TV island it belongs to.
