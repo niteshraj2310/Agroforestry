@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
