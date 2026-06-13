@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
