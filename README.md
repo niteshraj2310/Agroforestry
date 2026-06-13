@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
