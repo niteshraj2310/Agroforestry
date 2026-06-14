@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
