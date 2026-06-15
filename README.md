@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
