@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
