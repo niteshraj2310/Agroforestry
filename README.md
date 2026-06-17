@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
