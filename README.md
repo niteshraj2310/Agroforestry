@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## What do you get when you cross a snowman with a vampire? Frostbite.
