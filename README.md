@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Why do cows not have toes? They lactose!
