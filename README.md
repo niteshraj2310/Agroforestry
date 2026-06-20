@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## What time did the man go to the dentist? Tooth hurt-y.
