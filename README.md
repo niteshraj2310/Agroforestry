@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## What did one nut say as he chased another nut?  I'm a cashew!
