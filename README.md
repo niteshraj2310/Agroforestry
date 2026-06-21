@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
