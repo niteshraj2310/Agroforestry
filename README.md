@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
