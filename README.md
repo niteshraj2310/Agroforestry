@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## I thought about going on an all-almond diet. But that's just nuts.
