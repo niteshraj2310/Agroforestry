@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
