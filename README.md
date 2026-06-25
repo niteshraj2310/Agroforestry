@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
