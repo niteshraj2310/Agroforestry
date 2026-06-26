@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
