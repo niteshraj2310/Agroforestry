@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
