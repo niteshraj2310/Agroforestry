@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## Why are ghosts bad liars? Because you can see right through them!
