@@ -1,1 +1,2 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
