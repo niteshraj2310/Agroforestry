@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## I’m reading a book on the history of glue – can’t put it down.
