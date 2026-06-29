@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## I wouldn't buy anything with velcro. It's a total rip-off.
