@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Our wedding was so beautiful, even the cake was in tiers.
