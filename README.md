@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
