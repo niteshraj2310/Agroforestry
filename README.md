@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
