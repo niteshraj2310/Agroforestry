@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
