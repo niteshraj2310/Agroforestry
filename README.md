@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## How do you make Lady Gaga cry? Poker face. 
