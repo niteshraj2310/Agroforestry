@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## How do you find Will Smith in the snow?  Look for fresh prints.
