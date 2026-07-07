@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## I've got a joke about vegetables for you... but it's a bit corny.
