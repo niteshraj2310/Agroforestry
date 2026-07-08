@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
