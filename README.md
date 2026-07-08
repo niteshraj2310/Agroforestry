@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## I accidentally took my cats meds last night. Don’t ask meow.
