@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## Why are fish easy to weigh? Because they have their own scales.
