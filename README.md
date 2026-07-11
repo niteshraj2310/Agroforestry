@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
