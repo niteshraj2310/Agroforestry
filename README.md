@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## What did the digital clock say to the grandfather clock? Look, no hands!
