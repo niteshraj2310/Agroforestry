@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Conjunctivitis.com – now that’s a site for sore eyes.
