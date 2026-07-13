@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
