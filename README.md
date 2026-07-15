@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## I used to hate facial hair, but then it grew on me.
