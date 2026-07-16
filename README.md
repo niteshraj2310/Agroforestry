@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## I was in an 80's band called the prevention. We were better than the cure.
