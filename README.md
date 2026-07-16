@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## I couldn't figure out how the seat belt worked. Then it just clicked.
