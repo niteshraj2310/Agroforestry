@@ -1,1 +1,2 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
