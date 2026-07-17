@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
