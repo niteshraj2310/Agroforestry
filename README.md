@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Why do bears have hairy coats? Fur protection.
