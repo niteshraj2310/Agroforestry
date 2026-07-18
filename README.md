@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
