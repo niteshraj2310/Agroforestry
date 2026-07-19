@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## I knew a guy who collected candy canes, they were all in mint condition
