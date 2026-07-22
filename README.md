@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## What kind of music do mummy's like? Rap
