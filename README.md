@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
