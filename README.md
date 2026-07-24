@@ -1,1 +1,2 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
