@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
