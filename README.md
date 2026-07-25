@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## To the guy who invented zero... thanks for nothing.
