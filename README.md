@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
