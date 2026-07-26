@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Why was the shirt happy to hang around the tank top? Because it was armless
