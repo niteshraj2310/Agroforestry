@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
