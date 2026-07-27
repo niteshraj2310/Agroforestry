@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
