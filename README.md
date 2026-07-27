@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## How come a man driving a train got struck by lightning? He was a good conductor.
