@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
