@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
