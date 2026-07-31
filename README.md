@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Why did the octopus beat the shark in a fight? Because it was well armed.
