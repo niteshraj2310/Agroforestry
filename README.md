@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## I knew a guy who collected candy canes, they were all in mint condition
