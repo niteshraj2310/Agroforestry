@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
