@@ -1,3 +1,3 @@
-## Why do pumpkins sit on people’s porches?
+## What is the difference between ignorance and apathy?
 ## 
-## They have no hands to knock on the door.
+## I don't know and I don't care.
