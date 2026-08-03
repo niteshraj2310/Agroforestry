@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## I don't trust stairs. They're always up to something.
