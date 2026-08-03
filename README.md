@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## I tried to write a chemistry joke, but could never get a reaction.
