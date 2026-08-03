@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
