@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
