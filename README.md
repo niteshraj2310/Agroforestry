@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## A termite walks into a bar and asks “Is the bar tender here?”
