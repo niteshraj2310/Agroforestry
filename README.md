@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## What's blue and not very heavy?  Light blue.
