@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
