@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## People are making apocalypse jokes like there’s no tomorrow.
