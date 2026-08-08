@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## I've got a joke about vegetables for you... but it's a bit corny.
