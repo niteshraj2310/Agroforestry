@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
