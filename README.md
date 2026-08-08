@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
