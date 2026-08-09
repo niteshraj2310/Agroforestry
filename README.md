@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
