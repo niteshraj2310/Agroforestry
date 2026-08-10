@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## What do you call a duck that gets all A's? A wise quacker.
