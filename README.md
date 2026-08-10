@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
