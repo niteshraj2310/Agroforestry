@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## There's not really any training for garbagemen. They just pick things up as they go.
