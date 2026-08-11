@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## My New Years resolution is to stop leaving things so late.
