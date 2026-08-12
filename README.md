@@ -1,1 +1,1 @@
-## What do I look like? A JOKE MACHINE!?
+## What do you call someone with no nose? Nobody knows.
