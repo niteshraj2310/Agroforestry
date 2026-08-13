@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
