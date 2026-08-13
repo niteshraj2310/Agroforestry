@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
