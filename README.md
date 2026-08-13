@@ -1,1 +1,3 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
