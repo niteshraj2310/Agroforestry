@@ -1,1 +1,1 @@
-## How many apples grow on a tree? All of them!
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
