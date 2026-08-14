@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
