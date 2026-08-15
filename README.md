@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
