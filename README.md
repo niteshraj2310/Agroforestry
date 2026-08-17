@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
