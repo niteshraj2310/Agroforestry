@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## What did the sea say to the sand? "We have to stop meeting like this."
