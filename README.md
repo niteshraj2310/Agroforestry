@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
