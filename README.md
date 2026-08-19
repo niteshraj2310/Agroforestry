@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## A steak pun is a rare medium well done.
