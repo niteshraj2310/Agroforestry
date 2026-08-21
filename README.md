@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## What has a bed that you can’t sleep in? A river.
