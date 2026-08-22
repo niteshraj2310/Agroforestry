@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## Don't tell secrets in corn fields. Too many ears around.
