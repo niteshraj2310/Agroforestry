@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## What do you call a cow with two legs? Lean beef.
