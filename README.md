@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
