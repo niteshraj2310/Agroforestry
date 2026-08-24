@@ -1,1 +1,3 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
