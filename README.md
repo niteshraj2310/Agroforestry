@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
