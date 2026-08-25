@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
