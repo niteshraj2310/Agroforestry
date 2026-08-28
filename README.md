@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## What does a clock do when it's hungry? It goes back four seconds!
