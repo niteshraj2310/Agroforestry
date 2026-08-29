@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## I used to be addicted to soap, but I'm clean now.
