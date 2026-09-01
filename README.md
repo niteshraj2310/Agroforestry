@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## Why do crabs never give to charity? Because they’re shellfish.
