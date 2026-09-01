@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
