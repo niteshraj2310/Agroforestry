@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
