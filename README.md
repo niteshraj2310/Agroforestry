@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Where do rabbits go after they get married? On a bunny-moon.
