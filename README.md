@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
