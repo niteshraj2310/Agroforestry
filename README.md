@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Why do choirs keep buckets handy? So they can carry their tune
