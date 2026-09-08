@@ -1,1 +1,1 @@
-## What did the pirate say on his 80th birthday? Aye Matey!
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
