@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
