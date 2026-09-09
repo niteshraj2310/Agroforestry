@@ -1,1 +1,1 @@
-## I used to think I was indecisive, but now I'm not sure.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
