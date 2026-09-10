@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
