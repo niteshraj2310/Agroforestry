@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
