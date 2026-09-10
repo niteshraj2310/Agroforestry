@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
