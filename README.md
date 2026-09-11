@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
