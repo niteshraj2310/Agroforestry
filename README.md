@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
