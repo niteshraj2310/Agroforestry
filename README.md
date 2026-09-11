@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## Why is the ocean always blue? Because the shore never waves back.
