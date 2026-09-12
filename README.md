@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Why didn’t the orange win the race? It ran out of juice.
