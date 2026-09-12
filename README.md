@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
