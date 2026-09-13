@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Why don't eggs tell jokes? They'd crack each other up
