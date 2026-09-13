@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
