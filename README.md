@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## A Skeleton walked into a bar he said I need a beer and a mop
