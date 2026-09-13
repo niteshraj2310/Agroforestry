@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## How do the trees get on the internet? They log on.
