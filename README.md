@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
