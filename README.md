@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
