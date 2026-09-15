@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
