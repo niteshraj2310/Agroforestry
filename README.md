@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
