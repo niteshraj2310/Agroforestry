@@ -1,1 +1,1 @@
-## People are shocked to discover I have a police record but I love their greatest hits!
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
