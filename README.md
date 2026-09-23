@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
