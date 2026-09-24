@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## I was in an 80's band called the prevention. We were better than the cure.
