@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Remember, the best angle to approach a problem from is the "try" angle.
