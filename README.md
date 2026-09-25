@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## What do you call a nervous javelin thrower? Shakespeare.
