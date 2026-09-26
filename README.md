@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
