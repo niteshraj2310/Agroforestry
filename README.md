@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## Why did the melons plan a big wedding? Because they cantaloupe!
