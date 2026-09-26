@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
