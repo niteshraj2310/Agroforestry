@@ -1,1 +1,1 @@
-## Camping is intense.
+## How are false teeth like stars? They come out at night!
