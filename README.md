@@ -1,1 +1,1 @@
-## Scientists finally did a study on forks. It's about tine!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
