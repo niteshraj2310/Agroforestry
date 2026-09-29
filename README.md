@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## How can you tell a vampire has a cold? They start coffin.
