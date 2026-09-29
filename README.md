@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## What do you get when you cross a rabbit with a water hose? Hare spray.
