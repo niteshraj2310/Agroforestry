@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## How do you make a hankie dance? Put a little boogie in it.
