@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
