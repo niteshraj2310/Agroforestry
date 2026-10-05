@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
