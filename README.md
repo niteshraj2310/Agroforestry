@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
