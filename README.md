@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
