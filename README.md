@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
