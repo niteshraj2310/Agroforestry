@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## I hate perforated lines, they're tearable.
