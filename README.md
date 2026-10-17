@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## I fear for the calendar, its days are numbered.
