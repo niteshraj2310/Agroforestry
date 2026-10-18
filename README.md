@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
