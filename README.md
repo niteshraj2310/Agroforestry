@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
