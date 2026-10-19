@@ -1,1 +1,3 @@
-## Did you hear about the bread factory burning down? They say the business is toast.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
