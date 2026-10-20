@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
