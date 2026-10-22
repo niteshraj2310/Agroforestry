@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
