@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## Why do cows wear bells? Because their horns don't work.
