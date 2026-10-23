@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Did you hear about the bread factory burning down? They say the business is toast.
