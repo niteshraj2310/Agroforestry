@@ -1,1 +1,1 @@
-## Did you hear about the bread factory burning down? They say the business is toast.
+## Why did the barber win the race? He took a short cut.
