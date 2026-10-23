@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## How can you tell a vampire has a cold? They start coffin.
