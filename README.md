@@ -1,1 +1,1 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
