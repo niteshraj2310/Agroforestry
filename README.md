@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
