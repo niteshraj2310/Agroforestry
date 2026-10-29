@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
