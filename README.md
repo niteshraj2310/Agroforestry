@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## Why do crabs never give to charity? Because they’re shellfish.
