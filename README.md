@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Where do you learn to make banana splits? At sundae school.
