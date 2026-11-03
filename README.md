@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
