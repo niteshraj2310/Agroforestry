@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Where do sheep go to get their hair cut? The baa-baa shop.
