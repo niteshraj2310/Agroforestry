@@ -1,1 +1,1 @@
-## Do I enjoy making courthouse puns? Guilty
+## What time did the man go to the dentist? Tooth hurt-y.
